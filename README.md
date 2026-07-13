@@ -38,4 +38,7 @@ Com isso, gostaria de informar que seu projeto foi APROVADO!! Parabéns pelo emp
 
 Continue assim!
 
+contato imail, paulistaitalia28@gmail.com
+https://www.linkedin.com/in/fernanda-gomes-a1aa92296/
+
 CONTATO ,paulistaitalia28@gmail.com
